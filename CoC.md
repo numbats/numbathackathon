@@ -1,4 +1,4 @@
-## Code of Conduct for NUMBAT Hackathon 2025
+## Code of Conduct for NUMBAT Hackathon
 
 This hackathon is a group event intended for learning, collaboration, engagement, and getting to know one another better. We value the participation of each member and want everyone involved to have an enjoyable and fulfilling experience. Accordingly, all participants are expected to show respect and courtesy to others throughout the event. To make clear what is expected, all participants are required to conform to the following:
 
