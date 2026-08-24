@@ -7,6 +7,6 @@ This hackathon is a group event intended for learning, collaboration, engagement
 - **Be responsible**. Take responsibility for your own health and safety and don't wilfully place at risk the health and safety of another person.
 - **Have fun**. Give it your best shot and learn new things. 
 
-If you experience any problems, please talk with any of the faculty present: Di, Michael, Kate, and Mitch. Contact information is in the shared spreadsheet. Your participation means that you have agreed to this code of conduct. 
+If you experience any problems, please talk with any of the faculty present or the event organisers. Your participation means that you have agreed to this code of conduct. 
 
  
